@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @neopoggers
+- 👀 I’m Not interested in anything yet
+- 📫 How to reach me Discord ulookstupi#0130
